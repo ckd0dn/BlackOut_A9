@@ -74,3 +74,7 @@
 
 https://youtu.be/IMa_amqEon8
 ---
+
+## 📂: 다운로드
+
+https://drive.google.com/file/d/1M51F9OV4YV5qtE7uZMI2PW7Te4Jl5ety/view?usp=sharing
