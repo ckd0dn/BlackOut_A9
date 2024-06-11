@@ -69,6 +69,8 @@
 
 
 
+
 ## :movie_camera: 플레이 영상
 
+https://youtu.be/IMa_amqEon8
 ---
